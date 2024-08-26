@@ -7,3 +7,5 @@
 ![alt text](https://i.ibb.co/5n5ktS9/Internet-echromium-g0d-Het4r-Ta.png)
 
 ![alt text](figures/0.png)
+
+Вы можете скачать код отсюда: https://bit.ly/4dVRknN
